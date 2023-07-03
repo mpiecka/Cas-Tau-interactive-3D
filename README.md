@@ -1,1 +1,0 @@
-# Cas-Tau-interactive-3D
